@@ -1,2 +1,1 @@
-
-hello ths is for my choice
+hai hello how are you
